@@ -1,0 +1,1 @@
+hari ini saya pengen minum dan sebat sebungkus.
