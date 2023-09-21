@@ -1,1 +1,1 @@
-hari ini saya pengen minum dan sebat sebungkus.
+hari ini saya pengen minum dan sebat sebungkus. nggak jadi maunya 1 slop
